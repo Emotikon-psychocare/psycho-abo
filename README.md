@@ -1,1 +1,1 @@
-Strona Psycho Abo
+Strona Psycho-Abo
