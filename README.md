@@ -1,1 +1,1 @@
-"# psycho-abo" 
+Strona Psycho Abo
